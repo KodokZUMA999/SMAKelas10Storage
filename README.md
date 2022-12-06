@@ -1,0 +1,1 @@
+# SMAKelas10Storage
